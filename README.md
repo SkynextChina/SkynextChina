@@ -12,3 +12,5 @@ Twitter｜Skynext_China
 YouTube｜Aoino_Skynext  
 Bilibili｜Skynext_Kano  
 CoolApk｜Skynext  
+## Hope
+自分の手で幸せを作る。
