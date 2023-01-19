@@ -13,4 +13,5 @@ YouTube｜Aoino_Skynext
 Bilibili｜Skynext_Kano  
 CoolApk｜Skynext  
 ## Hope
-自分の手で幸せを作る。
+自分の手で幸せを作る。  
+哪怕只剩下日常和抱抱，葵野也会和你在一起。
