@@ -6,7 +6,8 @@
 ## Who am I
 Ordinal fan of Kano (鹿乃/かの).  
 First-year student in senior high.  
-LGBTQ+ people supporter.  
+LGBTI+ people supporter.  
+Like singing & linguistics(esp. Classical Chinese, Japanese & British English)~  
 ## Where can you find Aoino
 Twitter｜Skynext_China  
 YouTube｜Aoino_Skynext  
@@ -14,4 +15,5 @@ Bilibili｜Skynext_Kano
 CoolApk｜Skynext  
 ## Hope
 自分の手で幸せを作る。  
-哪怕只剩下日常和抱抱，葵野也会和你在一起。
+哪怕只剩下日常和抱抱，葵野也会和你在一起。  
+もっと応援してください！  
