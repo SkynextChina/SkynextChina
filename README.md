@@ -5,11 +5,13 @@
 今だけ全部忘れて眠ろう  
 ## Who am I
 Ordinal fan of Kano (鹿乃/かの).  
-First-year student in senior high.  
+Second-year student in senior high.  
 LGBTI+ people supporter.  
 Like singing & linguistics(esp. Classical Chinese, Japanese & British English)~  
 ## Where can you find Aoino
-Twitter｜Skynext_China  
+Mastodon | Aoino@mastodon.social  
+Telegram | Aoino_Skynext  
+𝕏｜Skynext_China  
 YouTube｜Aoino_Skynext  
 Bilibili｜Skynext_Kano  
 CoolApk｜Skynext  
