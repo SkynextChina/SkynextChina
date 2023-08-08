@@ -9,7 +9,7 @@ Second-year student in senior high.
 LGBTI+ people supporter.  
 Like singing & linguistics(esp. Classical Chinese, Japanese & British English)~  
 ## Where can you find Aoino
-Mastodon | Aoino@mastodon.social  
+Mastodon | @Aoino@mastodon.social  
 Telegram | Aoino_Skynext    
 YouTube｜Aoino_Skynext  
 Bilibili｜Skynext_Kano  
