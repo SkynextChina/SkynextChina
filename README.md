@@ -7,15 +7,15 @@
 Ordinal fan of Kano (鹿乃/かの).  
 Second-year student in senior high.  
 LGBTI+ people supporter.  
-Like singing & linguistics(esp. Classical Chinese, Japanese & British English)~  
+Like singing & linguistics(esp. Classical Chinese, Lhasa Tibetan, Japanese(Tokyo dialect), British English(BBC pronunciation) & Esperanto)~  
 ## Where can you find Aoino
 Mastodon | @Aoino@mastodon.social  
-Telegram | Aoino_Skynext    
-YouTube｜Aoino_Skynext  
-Bilibili｜Skynext_Kano  
-CoolApk｜Skynext  
-𝕏｜Skynext_China  
+𝕏 | Skynext_China  
+Discord | aoino_skynext  
+YouTube | Aoino_Skynext  
+Bilibili | Skynext_Kano  
+CoolApk | Skynext  
 ## Hope
 自分の手で幸せを作る。  
-哪怕只剩下日常和抱抱，葵野也会和你在一起。  
+ただ誰かに会いたいだけ。  
 もっと応援してください！  
